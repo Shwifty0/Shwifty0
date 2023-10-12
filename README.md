@@ -1,5 +1,5 @@
 # 💫 About Me:
-🤖📈🧠 Machine Learning Enthusiast | <br>📊🔍 Analytics & Insights | <br>🚀🌟 Passionate about AI-driven solutions | <br>🌐🔍 Seeking opportunities to leverage my skills for impact and growth!
+Who cares!
 
 
 ## 🌐 Socials:

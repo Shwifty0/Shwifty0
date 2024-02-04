@@ -1,7 +1,5 @@
 # 💫 About Me:
-Who cares!
-
-
+[Who cares!](https://64.media.tumblr.com/55fdee76b25ad2bf2ba827cd28bccba4/057bfde244e31a06-34/s540x810/6dea10aedbaa20930b22a9e11fe803a2274111eb.gifv)
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/Shwifty#2461) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/muhammad-ozair-b12682177) [![Reddit](https://img.shields.io/badge/Reddit-%23FF4500.svg?logo=Reddit&logoColor=white)](https://reddit.com/user/Shwifty_MO)
 
